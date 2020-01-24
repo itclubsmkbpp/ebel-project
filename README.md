@@ -1,2 +1,2 @@
 # ebel-project
-This project is used to increase knowledge
+Hello Adjie, be yourself and conquer the world
